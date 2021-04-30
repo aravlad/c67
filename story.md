@@ -1,1 +1,2 @@
 Family crosses bridge but they get abbushed by troll. troll give them one wish each. Dog chooses many bones and treats. sister wants all the things related to makeup. dad wants the money to sustain life. mom wants love from everybody and bob wants the infinity gauntlet with all the stones so he can snap the troll away and the all thanks him and go home.
+Family crosses bridge but they get abbushed by troll. troll was going to give them one wish each. instead he a  te them. 
